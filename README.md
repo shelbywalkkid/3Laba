@@ -1,1 +1,1 @@
-Video - https://disk.yandex.ru/i/kDjpLpyC24pQsA
+Video - https://disk.yandex.ru/i/KhX-WiEQ9gBchw
